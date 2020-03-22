@@ -2,6 +2,8 @@
 
 > This is a great first Ferrari! When shopping for a used Ferrari, the most important thing to look at is the maintenance history and whether the common service issues have been dealt with. This car has been well maintained and all of the critical updates have been completed including the 3 bolt starter ring replaced with the 6 bolt design and cam variators replaced with updated parts.
 
+[Click here for photos](https://drive.google.com/drive/folders/1pHHpTnUoHpVyuHNxkVJY5SI1nRhGxGY_?usp=sharing)
+
 ## Details
 
 - 2001 Ferrari 360 Spider
@@ -88,6 +90,8 @@ Ferrari 360 short drive
 [![](http://img.youtube.com/vi/vm5Ctc4Crw8/0.jpg)](http://www.youtube.com/watch?v=vm5Ctc4Crw8 "Ferrari 360 short drive")
 
 ## Photos
+
+[Click here for photos](https://drive.google.com/drive/folders/1pHHpTnUoHpVyuHNxkVJY5SI1nRhGxGY_?usp=sharing)
 
 ## Additional Information
 
