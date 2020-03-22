@@ -1,8 +1,10 @@
 # Ferrari 360 Spider For Sale
 
+![Ferrari 360 Spider](/2001%20Ferrari%20360%20Spider.jpg "Ferrari 360 Spider")
+
 > This is a great first Ferrari! When shopping for a used Ferrari, the most important thing to look at is the maintenance history and whether the common service issues have been dealt with. This car has been well maintained and all of the critical updates have been completed including the 3 bolt starter ring replaced with the 6 bolt design and cam variators replaced with updated parts.
 
-[Click here for photos](https://drive.google.com/drive/folders/1pHHpTnUoHpVyuHNxkVJY5SI1nRhGxGY_?usp=sharing)
+[Click here for more photos](https://drive.google.com/drive/folders/1pHHpTnUoHpVyuHNxkVJY5SI1nRhGxGY_?usp=sharing)
 
 ## Details
 
