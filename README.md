@@ -40,7 +40,7 @@
 - Less than 2,700 miles on [Michelin Pilot Sport 4S tires](https://www.michelinman.com/tires/pilot/pilot-sport-4s.html)
 - Cold A/C
 - 3 keys and 3 key fobs
-- Rolled front fender lips (no tire snags on sharp turns)
+- Rolled front fender lips (no tire rubbing)
 - Toolkit
 - Books
 - Indoor car cover
