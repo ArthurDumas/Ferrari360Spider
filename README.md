@@ -17,7 +17,7 @@
 - $65,000
 - Car located in Sarasota, FL
 - Text or call mobile phone: 941-600-8607 (please text before calling the first time)
-- Email: <arthur.dumas@gmail.com>
+- Email: <a.r.t.dumas@gmail.com>
 
 ## Highlights
 
