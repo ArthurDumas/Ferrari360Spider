@@ -26,7 +26,7 @@
 - Clean Carfax
 - Clear title
 - Factory Scuderia shields on front fenders (not aftermarket stick-on shields)
-- [Tubi](https://www.tubistyle.it/ferrari-360-modena-spider-challenge-stradale-exhaust-system/?lang=en) muffler and exhaust tips
+- [Tubi](https://www.tubistyle.it/ferrari-360-modena-spider-challenge-stradale-exhaust-system/?lang=en) muffler and exhaust tips [$4,800 retail](https://www.vividracing.com/tubi-style-stainless-steel-exhaust-system-valves-ferrari-f360-spyder-p-152408757.html)
 - 19" Challenge Stradale wheels made by BBS for Ferrari
 - Original 18" 5 spoke starfish wheels included
 - [Girodisc](https://www.girodisc.com/Rotors_c_495.html) brake rotors
