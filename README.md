@@ -2,7 +2,9 @@
 
 ![Ferrari 360 Spider](2001%20Ferrari%20360%20Spider.jpg "Ferrari 360 Spider")
 
-> This is a great first Ferrari! When shopping for a used Ferrari, the most important thing to look at is the maintenance history and whether the common service issues have been dealt with. This car has been well maintained and all of the critical updates have been completed including the 3 bolt starter ring replaced with the 6 bolt design and cam variators replaced with updated parts.
+>This is a great first Ferrari! When shopping for a used Ferrari, the most important thing to look at is the maintenance history and whether the common service issues have been dealt with. This car has been well maintained and all of the critical updates have been completed including the 3 bolt starter ring replaced with the 6 bolt design and cam variators replaced with updated parts.
+
+>Hagerty just added the Ferrari 360 to their [2020 Bull Market list](https://www.hagerty.com/articles-videos/articles/2020/01/08/2020-hagerty-bull-market-selection-1999-2005-ferrari-360).
 
 [Click here for more photos](https://drive.google.com/drive/folders/1pHHpTnUoHpVyuHNxkVJY5SI1nRhGxGY_?usp=sharing)
 
