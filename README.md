@@ -16,7 +16,7 @@
 - Euro VIN ZFFYT53B000122241
 - Federalization paperwork and California Air Resources Board certification
 - [Carfax from March 2020](https://drive.google.com/file/d/1A6mxrPsFq5bFn9JjkoczySHgSviKQSPN/view?usp=sharing)
-- $65,000
+- $64,500
 - Car located in Sarasota, FL
 - Text or call mobile phone: 941-600-8607 (please text before calling the first time)
 - Email: <arthur.dumas@gmail.com>
