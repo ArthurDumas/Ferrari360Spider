@@ -15,7 +15,7 @@
 - Approximately 39,500 miles as of March 2020
 - Euro VIN ZFFYT53B000122241
 - Federalization paperwork and California Air Resources Board certification
-- [Carfax from March 2020](https://drive.google.com/file/d/1A6mxrPsFq5bFn9JjkoczySHgSviKQSPN/view?usp=sharing)
+- [Carfax from March 2020](https://drive.google.com/open?id=1z472rzMXUSCWZMroEL2B5js7nHShQj41)
 - $64,500
 - Car located in Sarasota, FL
 - Text or call mobile phone: 941-600-8607 (please text before calling the first time)
