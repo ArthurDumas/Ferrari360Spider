@@ -26,7 +26,7 @@
 - Classic Ferrari red with tan interior (Rosso Corsa / Beige)
 - Service records from 2003 onward
 - Clean Carfax
-- Clear title
+- Clear title in hand
 - Factory Scuderia shields on front fenders (not aftermarket stick-on shields)
 - [Tubi](https://www.tubistyle.it/ferrari-360-modena-spider-challenge-stradale-exhaust-system/?lang=en) muffler and exhaust tips ([$4,800 retail](https://www.vividracing.com/tubi-style-stainless-steel-exhaust-system-valves-ferrari-f360-spyder-p-152408757.html))
 - 19" Challenge Stradale wheels made by BBS for Ferrari
