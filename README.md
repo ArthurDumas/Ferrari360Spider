@@ -102,6 +102,7 @@ Ferrari 360 short drive
 I am listing these items in the spirit of full transparency and no surprises. Several of these items are nit-picky but if you come to look at the car, I want you to know exactly what to expect.
 
 - The paint is in good shape but is not perfect.
+- There is protective film on part of the hood and front fenders. It is getting some age "cracks" now. Actually looks like scratches but is in the film, not the paint.
 - Seats show some dye wear on side bolster.
 - Some interior sticky bits, but not on anything you regularly touch.
 - Manual seats fore and aft sliding adjustment requires some effort.
